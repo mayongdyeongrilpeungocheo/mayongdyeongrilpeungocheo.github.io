@@ -1,4 +1,4 @@
-# The Socialist Technocratic Benevolent Dictatorship of Koshland🌾☭
+# The Socialist Technocratic Benevolent Dictatorship of Koshland🌾<p>&#x262D;</p>
 
 The offical goverment website of the The Socialist Technocratic Benevolent Dictatorship of Koshland.
 
