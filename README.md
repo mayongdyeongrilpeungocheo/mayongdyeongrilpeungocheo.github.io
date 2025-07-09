@@ -1,6 +1,6 @@
 # The Socialist Technocratic Benevolent Dictatorship of Koshland🌾☭
 
-The offical goverment website of the The Socialist Technocratic Benevolent Dictatorship of Koshland
+The offical goverment website of the The Socialist Technocratic Benevolent Dictatorship of Koshland.
 
 ## Credit
 
